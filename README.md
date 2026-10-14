@@ -1,6 +1,6 @@
 # Hi there, I'm Hassan Amro Atta 👋
 
-**Data Scientist · AI Learner · Python Enthusiast**
+**Data Scientist · AI Learner · Python Enthusiast . TOFAS Awarded 2026**
 
 ---
 
